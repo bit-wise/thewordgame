@@ -1,2 +1,3 @@
-# thewordgame
-The Word Game
+# The Word Game
+
+https://bit-wise.github.io/thewordgame/
