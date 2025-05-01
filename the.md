@@ -177,3 +177,17 @@ Her eyebrows twitched and a thin trail of smoke escaped her nostrils.
 They sat and watched Larby.
 
 ## Get on your comfy clothes and wait to die
+
+
+
+I fiddle little funny
+I, fiddle, little funny
+i fidddle little, funny
+
+
+Into the grey. The grey. Book with no name.
+
+Stupy & Goofid
+
+Trip tonight (his weakness)
+
