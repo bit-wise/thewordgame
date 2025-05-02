@@ -191,3 +191,8 @@ Stupy & Goofid
 
 Trip tonight (his weakness)
 
+
+"When do the drugs you gave me, wear off?"
+
+"The beauty of nature exists to keep you alive as long as you can."
+
