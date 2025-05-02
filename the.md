@@ -196,3 +196,4 @@ Trip tonight (his weakness)
 
 "The beauty of nature exists to keep you alive as long as you can."
 
+Growing up, everyone just kept asking me for the answers. I usually had them, but as i'm get older, I'm starting not to."
