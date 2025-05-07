@@ -214,3 +214,14 @@ Exploring the edge of space, as best we can; through stories, ideas, theories. A
 - multiplayer, but no save state.
 - the game of chance.
   - do you take them?
+
+It is hard to carry on a conversation; for some.
+I feel like a ghost; adrift.
+The end; the end.
+Again; again.
+
+
+Hope you're enjoying this free part of the internet.
+
+
+## I am scatter brained and tired.
