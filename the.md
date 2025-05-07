@@ -209,3 +209,8 @@ I can try to make that happen, I can try to make that happen, I can try to make 
 I can try to make that happen, I can try to make that happen, I can try to make that happen.
 
 Exploring the edge of space, as best we can; through stories, ideas, theories. A game.
+- you don't know what the rules are, until you break them.
+- a rogue-like.
+- multiplayer, but no save state.
+- the game of chance.
+  - do you take them?
