@@ -197,3 +197,15 @@ Trip tonight (his weakness)
 "The beauty of nature exists to keep you alive as long as you can."
 
 Growing up, everyone just kept asking me for the answers. I usually had them, but as i'm get older, I'm starting not to."
+
+### The Reluctant Hero
+"Why do you keep doing this?"
+"Do you think I want to?"
+- how they'll remember this later.?
+- like little pops in the can.
+
+I can try to make that happen, I can try to make that happen, I can try to make that happen.
+I can try to make that happen, I can try to make that happen, I can try to make that happen.
+I can try to make that happen, I can try to make that happen, I can try to make that happen.
+
+Exploring the edge of space, as best we can; through stories, ideas, theories. A game.
