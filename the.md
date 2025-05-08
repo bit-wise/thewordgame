@@ -224,4 +224,4 @@ Again; again.
 Hope you're enjoying this free part of the internet.
 
 
-## I am scatter brained and <a href="poem.txt">tired.</a>
+## I am scatter brained and [tired.](poem.txt)
