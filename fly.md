@@ -54,3 +54,9 @@ Once you start the simulation, never, stops.
 ***Looks like rain." He says.***
 
 
+## What the hell are we doing here?
+She turned, and she looked at me.
+
+"To fear us is just smart."
+
+Wait, is this the game where the end game is no end game?
