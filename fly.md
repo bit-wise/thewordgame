@@ -23,3 +23,9 @@ How do ideologies spread?
 
 
 ### Pixels catered to your every desire.
+
+# # 
+ ^
+#_#
+
+# Now, think about yourself.
