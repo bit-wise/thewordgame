@@ -60,3 +60,26 @@ She turned, and she looked at me.
 "To fear us is just smart."
 
 Wait, is this the game where the end game is no end game?
+
+# The butterfly animation
+;B ;P ;I ;P ;B
+;P ;I ;P ;B ;P
+;I ;P ;B ;P ;I
+;P ;B ;P ;I ;P
+;B ;P ;I ;P ;B
+
+
+### There is always new stuff to be done!; Or, How someone always needs to be doing the new thing.
+
+
+
+
+A silent seagull sourcing overhead.
+A hawk.
+
+
+
+
+If you don't look at your prey, you're perceived not, as a predator.
+If you're unseen by your prey, you're not perceived as the predator.
+If you've seen, and don't care
