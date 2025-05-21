@@ -101,3 +101,13 @@ Then somethings to look at them
 
 
 #### What beautifully random things.
+
+Can I wish whatever I want into existence?
+
+
+Is the universe that big?
+
+That everyone could will whatever they wanted into existence, and every one of them could then upon their every one of they, and every they could ever on, for forever; is this the answer to this one? 
+
+
+# the Wish
