@@ -82,4 +82,22 @@ A hawk.
 
 If you don't look at your prey, you're perceived not, as a predator.
 If you're unseen by your prey, you're not perceived as the predator.
-If you've seen, and don't care
+If you've seen, and don't care <----- LINK to noise!!!!!!! (Tue May 20 08-13 PM)
+
+
+
+You could never assimilate back into nature. <----- LINK to noise!!!!!!! (Tue May 20 08-14 PM)
+<!-- OR, How can you live along side these? -->
+
+
+## Or, just eat whatever
+
+We're you given a long one?
+
+
+### I think it made clouds first.
+
+Then somethings to look at them
+
+
+#### What beautifully random things.
