@@ -136,4 +136,16 @@ Then some things to look at it.
 
 #### What a beautiful butterfly.
 
-said Alice.
+said Alice; "Remember when you were a baby?"
+
+"Rolling on the grass. Smiling. Putting everything in your mouth to see if you can eat it?"
+
+"Butterflies tickled your nose and you giggled."
+
+"The light dancing through their wings, in blues and orange, upon your new born eyes?"
+
+"How their little feet pattered across your forehead, and you had a thought, and you laughed?"
+
+Remember that? Alice said.
+
+
