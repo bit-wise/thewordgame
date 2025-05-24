@@ -111,3 +111,29 @@ That everyone could will whatever they wanted into existence, and every one of t
 
 
 # the Wish
+
+'Ignore you"re dying.'
+
+
+## With what, do you perceive?
+
+The world, a dream; simulation, momentarily; a fiction.
+
+A momentary glimpse of empathy.
+
+
+I'm *almost* on easy,
+but 
+I'm also on the verge of, very hard.
+
+
+"What if you died, and didn't know you were dead?"
+
+# I think it made the clouds first.
+
+Then some things to look at it.
+
+
+#### What a beautiful butterfly.
+
+said Alice.
