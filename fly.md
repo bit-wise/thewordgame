@@ -138,15 +138,16 @@ Then some things to look at it.
 
 said Alice; "Remember when you were a baby?"
 
-"Rolling on the grass. Smiling. Putting everything in your mouth to see if you can eat it?"
+"Rolling on the grass. Smiling. Putting everything in your mouth?"
 
-"Butterflies tickled your nose and you giggled."
+"Butterflies tickled your nose and you giggling."
 
-"The light dancing through their wings, in blues and orange, upon your new born eyes?"
+"The light dancing through their blue orange wings."
 
-"How their little feet pattered across your forehead, and you had a thought, and you laughed?"
+"How their little feet pattered on your skin"
+"You had a thought, and you laughed."
 
-Remember that? Alice said.
+Remember Alice
 
 
 
