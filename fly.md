@@ -149,3 +149,43 @@ said Alice; "Remember when you were a baby?"
 Remember that? Alice said.
 
 
+
+
+/n
+/n
+
+
+
+
+Look at the tops of trees.
+
+How did people discovery these things?
+
+A plane flies.
+
+Overhead.
+
+To the right a cloud striations.
+
+
+
+
+
+Apple really gets you right up until you start to have fun.
+
+"Dun't it," she said begrudgingly, into the microphone before her.
+"Apple really gets you." it reiterated, it reiterated.
+
+
+### Fresh New Jammies.
+
+it was a small world.
+
+after all,
+
+it was so small.
+
+What a small world; after everything.
+
+
+## Think about this.
