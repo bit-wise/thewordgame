@@ -214,3 +214,50 @@ think about being there.
 
 
 ;|PB\|PB unless ;|BP\|bBP\|B
+
+
+
+
+
+
+
+
+
+
+## One green screen frame in the middle of commercials; it's future proofing.
+
+
+
+
+
+
+
+
+So say you have a game.
+
+Probabilities.
+
+There is an infinity pool of 2's and 3's.
+
+You need to make a multiple of ten.
+
+You pick a number.
+
+
+"It chooses."
+
+"A 2" said the announcer.
+
+
+"That is one less."
+
+all-1 / 2all
+
+
+
+
+## Paradentaryism
+The fear of being paralyzed, but the desire to be sedentary.
+
+
+# Hosted by matter, and the matter of [hosting.](host.md)
