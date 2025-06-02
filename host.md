@@ -114,3 +114,48 @@ The stranger smiled and shook their hands.
 "Not at all my new friend," beamed William back.
 The stranger removed his shoes -- a pair of weathered work boots -- and placed them opposite the guests'.
 The carpet had changed, he thought; feels different.
+
+
+
+
+
+
+
+
+
+
+"Do you say mean things  because it is hard to communicate with any people?"
+
+A father hasn't seen what his son has done.
+
+
+
+The young one was like, "I fuckin' told you guys; but, you didn..."
+
+"Listen to that, o'r there." shippie said in the bath, beneath the water -- small boats adrift.
+
+
+
+I'm stoned. "No worries". She turned, on her heals, like she'd never done before,
+
+
+
+# Don't worry, "I'm not stoned.
+
+
+and it was said to be 43"
+
+
+
+
+
+
+
+Clair showed up in a bright dress.
+Mostly white with embroidered oranges and pears.
+
+"Clair you must come in; meet our guest."
+
+She had barely her jacket off before she was dragged.
+
+
