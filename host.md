@@ -169,4 +169,18 @@ She had barely her jacket off before she was dragged.
 
 # A Conversation
 
+"A screen is where you shoot things."
+
+"I-"
+
+"I disagree."
+
+"How so?"
+
+
+A bit of dried mud flaked off his boots and caught a beam of this evening's sunlight.
+
+
+
+
 
