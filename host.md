@@ -215,4 +215,53 @@ A stream flows thickly, rapidly, noisily.
 Debris is swept away.
 "The river is deep; 6ft in places."
 The stranger had to excuse himself for a moment, "Excuse me, for a moment."
+A dog barked.
+For their attention, he had none.
+
+
+
+Imagine a society of giving.
+Everyone just gives each other everything.
+You are in turn given, more than you need.
+So you must give.
+To not be overwhelmed by the bounty.
+You must give, or be given.
+***Give or be given - Wed Jun 4 9:32 PM***
+
+
+The stranger recited this poem.
+
+
+He went up the stairs to the second floor.
+His room was the second door of the left, just after the bathroom.
+'Yup there it is, the bathroom, hmm smaller than I remember it; and the tile is different--'
+My room(!)
+He stood on the spot he always stood before he'd throw his body weight toward the handle of his door, just to catch it, and turn it, just in time, to tumble into bed.
+He remembers smirking.
+
+
+
+# The doorbell rings again.
+
+William hurried for the door.
+
+He opened it to find a delivery person holding a large package.
+
+Within the package was a wooden box with two figurines inside.
+
+"Ah, my dearest friends!" William exclaimed, "I had almost forgotten about these!"
+
+After dispatching with the delivery cardboard, he carefully dismantled the box and placed the two figurines on the central coffee table.
+
+"A toast to--", when suddenly a commotion clattered from upstairs.
+
+"--I'm alright, I'm alright." a muffled voiced said (with a chuckle).
+
+The guests rushed to the stairs.
+
+"That is my story." said Andrew.
+
+"It's a bit on the nose." said Lisa.
+
+"Yeah, you weren't even very inventive with the location. Here? In this cabin? Really?" she Megan.
 
