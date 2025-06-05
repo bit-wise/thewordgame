@@ -181,6 +181,38 @@ She had barely her jacket off before she was dragged.
 A bit of dried mud flaked off his boots and caught a beam of this evening's sunlight.
 
 
+"The house breathed in."
+"Its breathes were deep, and heavy."
+"Minutes."
+
+"Drats! You always have the best riddles."
+
+Nodded smugly.
 
 
+
+
+Charlie's foot hurt because he did not get enough calcium growing up.
+
+You could take a bullet to the brain and still come out.. okay.
+"You took a bullet to the brain and turned out okay." she said.
+
+
+"The banister was built by my dad and I--"
+
+The music halt, hiccupped.
+
+"--but, why is everyone so hyperactive?"
+
+
+
+Part of a river flows through the twigs; a run-off.
+Many droplets, pitter patter down a line, through leaves.
+The ground beneath them.
+A stream flows thinly, gently, quietly, quickly.
+Less water gets to the lake.
+A stream flows thickly, rapidly, noisily.
+Debris is swept away.
+"The river is deep; 6ft in places."
+The stranger had to excuse himself for a moment, "Excuse me, for a moment."
 
