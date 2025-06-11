@@ -265,3 +265,76 @@ The guests rushed to the stairs.
 
 "Yeah, you weren't even very inventive with the location. Here? In this cabin? Really?" she Megan.
 
+
+
+
+You looked and looked and could not see it, until, suddenly, and there it was.
+
+
+
+The first firefly.
+What courage it must take.
+
+
+
+## "Are you sponsered bruh?"
+
+
+Is there a record of you?
+
+If the photos in your phone were deleted?
+
+Your social media?
+
+Anything digital of you?
+
+If it were gone, what record of you would there be?
+
+
+"I do'no man; you know?; it's a government job--"
+"--yeah," you're good, until you're useful."
+
+
+With a bang!
+A party balloon pops.
+"Ah, there you are!" William exclaimed, "I was wondering when you would show up."
+William spun to his guests and presented a visibly grumpy, long-haired, calico cat.
+The dinner guests gasped.
+
+
+"Ingenuity!" Spoke the cat.
+
+
+
+
+"How d'you do things?"
+"How'd you do things?"
+
+
+## It is tough to talk to people.
+
+
+"...'TLDR; a progressive idea, missing infrastructure,. with ignorant demand.'..." said Byron.
+
+"Dang, I just saw a bug relax. It was a (what I assume to've been a kid) dragonfly; it relaxed its back and shouldered its wings to its left side.; until, I tried to get out my camera, wherein, it repositioned its wings to a central, liftoff position, and as we paused, it took a moment, and flew off." said Emily.
+
+Deep within the farthest reaches of the party they set themselves a space to gather and talk.
+
+
+"Do you think it is possible to be happy without being sad?" thought Dillon.
+
+
+"Possibly," said Anna <!--(pause for attention please)-->, "it is a coincidence."
+
+
+# How do people talk?
+
+"Flying cars are possible, but the air traffic control component is completely insufficient. It can barely handle the current loud, let alone every Tom, Dick, and Harry." the TV said.
+
+".. just completely out there in the world, huh."
+
+".. yeah-"
+
+A door opens abruptly.
+Light queues in, silhouettes, shifting through latent beams, a figure.
+The door bell rings.
