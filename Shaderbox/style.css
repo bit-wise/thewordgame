@@ -1,0 +1,21 @@
+html,
+body {
+  margin: 0;
+  /* padding: 25px; */
+  background-color: black;
+  font-family: 'Courier New', Courier, monospace;
+  color: white;
+  position: relative;
+}
+
+canvas {
+  display: block;
+  margin: 0 auto;
+  /* padding-top: 25px; */
+}
+
+.button {
+  cursor: pointer;
+  text-align: center;
+  padding: 0.5em 1em;
+}

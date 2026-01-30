@@ -1,0 +1,20 @@
+let config = {
+    "repository": "Shaderbox",
+    "project": "carla4",
+    "id": "Shaderbox_carla4",
+    "debug": false,
+    "width": 1024,
+    "height": 1024,
+    "density": 1,
+    "seed": 42,
+    "fps": 60,
+    "src": "shader.frag",
+    "wrap_x": true,
+    "wrap_y": true,
+    "show_orig": false,
+    "loop": true,
+    "cinematic": true,
+    "audio_active": true,
+    "PI": 3.141592653589793,
+    "PI2": 6.283185307179586
+};

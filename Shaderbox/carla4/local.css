@@ -1,0 +1,56 @@
+* {
+    box-sizing: border-box;
+}
+
+#info {
+    position: fixed;
+    right: 0;
+    bottom: 1em;
+    width: 98%;
+    height: 0.5em;
+    background-color: rgba(0, 0, 0, 0.5);
+    margin: 0 1%;
+    border-radius: 2em;
+}
+
+.lvl_info {
+    position: absolute;
+    top: -0.5em;
+    width: 0.5em;
+    height: 1.5em;
+    font-size: 1em;
+    border-radius: 2em;
+}
+
+#min {
+    background-color: #0088ff;
+}
+
+#lvl {
+    background-color: #00ff88;
+}
+
+#max {
+    background-color: #ff0088;
+}
+
+#config {
+    position: fixed;
+    right: 1%;
+    top: 1em;
+    width: 30em;
+    border-radius: 0.5em;
+    height: auto;
+    max-height: 100vh;
+    overflow: auto;
+    background-color: rgba(0, 0, 0, 0.5);
+    color: white;
+    font-size: 2em;
+    padding: 1em;
+    white-space: pre-wrap;
+    opacity: 0;
+}
+
+#config:hover {
+    opacity: 1;
+}

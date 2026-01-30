@@ -324,7 +324,7 @@ Deep within the farthest reaches of the party they set themselves a space to gat
 "Do you think it is possible to be happy without being sad?" thought Dillon.
 
 
-"Possibly," said Anna <!--(pause for attention please)-->, "it is a coincidence."
+"Possibly," said 'dd', "it is a coincidence."
 
 
 # How do people talk?
@@ -338,3 +338,8 @@ Deep within the farthest reaches of the party they set themselves a space to gat
 A door opens abruptly.
 Light queues in, silhouettes, shifting through latent beams, a figure.
 The door bell rings.
+
+
+#### "It is the newest frontier; a way to explore untapped horizons, through inferred experience."
+
+/web.md
